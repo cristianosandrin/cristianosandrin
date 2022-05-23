@@ -1,5 +1,5 @@
 - 👋 Olá, me chamo Cristiano
 - 👀 Amo tecnologia
 - 🌱 Estou estudando tecnologias disruptivas
-- 💞️ Gosto de colaborar na modernização da gestão pública
+- 💞️ Gosto de colaborar na modernização da gestão pública e empresarial
 - 📫 Moro em BH
